@@ -1,2 +1,0 @@
-# SJP.XD
-Not interested 
